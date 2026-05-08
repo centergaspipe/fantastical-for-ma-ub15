@@ -1,4 +1,4 @@
-
+Get the ultimate Fantastical for macOS macro with Fantastical for macOS top Macro: voice notes & note encryption. Featuring voice notes and note encryption, it's the best choice
 
 
 
